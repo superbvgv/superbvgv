@@ -1,6 +1,7 @@
 ### Hi everyone 🧙
 
 My blog: https://superbvgv.com
+My LinkedIn: https://linkedin.com/in/superbvgv
 
 ### About me
 
