@@ -1,6 +1,5 @@
 ### Hi everyone 🧙
-
-My blog: https://superbvgv.com
+Information Security/Red team/Pentest
 <br>
 My LinkedIn: https://linkedin.com/in/superbvgv
 
